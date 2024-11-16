@@ -1,1 +1,4 @@
 # ulangan
+
+kamu nanya
+hahahaha
